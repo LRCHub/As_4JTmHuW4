@@ -1,0 +1,25 @@
+# Avicii & Sandro Cavazza – Without You
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+「何かが足りない 距離をおきたい」と
+あなたから切り出された
+別れまでのカウントダウンは始まっている
+強気でいるけど時間が経つほど
+沈黙に支配される
+目に見えなくても心は繋がっている
+愛を手放せないよ あなたを手放せない
+I can't live if living is without you
+I can't live, I can't give any more
+乾いた土には二人の根はどうも
+はれないまま生きてきた
+逞しい木になるとずっと思っていた
+I can't live if living is without you
+I can't live, I can't give any more
+I can't live if living is without you
+I can't live, I can't give any more
+No, I can't forget this evening
+Or your face as you were leaving
+But I guess that's just the way the story goes
+```
